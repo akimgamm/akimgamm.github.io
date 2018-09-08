@@ -1,1 +1,0 @@
-# akimgamm.github.io
